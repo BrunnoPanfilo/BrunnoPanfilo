@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BrunnoPanfilo
+- 👀 I’m interested in A.I, Growth and Data.
+- 🌱 I’m currently learning all the topics above
+- 💞️ I’m looking to collaborate on the community to learn more
+- 📫 reach me at bruno.panfilo@everestgroup.com.br
